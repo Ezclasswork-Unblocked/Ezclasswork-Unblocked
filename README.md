@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ezclasswork-Unblocked
 - 👀 I’m interested in new games!
-- 📫 How to reach me on chad@overemployedeu.com
+- 📫 How to reach me on https://ezclasswork.com/ 
 - ⚡ Fun fact: I'm here to help you pass some fun time in my site!
 
 ezclassworkcom best free unblocked games online
